@@ -1,1 +1,0 @@
-# penzugyi-program.github.io
